@@ -73,7 +73,7 @@ Find my edits on Instagram: **[@whattfduo_](https://instagram.com/whattfduo_)**
 ## 🔗 EXITS
 
 - 🐙 GitHub: [@addysaur](https://github.com/addysaur)
-- 📸 Instagram: [@whattfduo_](https://instagram.com/whattfduo_)
+- 📸 Instagram: [@addysaur_](https://instagram.com/addysaur_)
 
 ---
 
