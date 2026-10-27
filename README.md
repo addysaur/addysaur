@@ -1,4 +1,4 @@
-![The Backrooms — Level 0](backrooms-banner.jpg)
+![The Backrooms — Level 0](backrooms-banner.gif)
 
 # ⚠️ YOU NOCLIPPED OUT OF REALITY
 
@@ -73,7 +73,7 @@ Find my edits on Instagram: **[@whattfduo_](https://instagram.com/whattfduo_)**
 ## 🔗 EXITS
 
 - 🐙 GitHub: [@addysaur](https://github.com/addysaur)
-- 📸 Instagram: [@addysaur_](https://instagram.com/addysaur_)
+- 📸 Instagram: [@whattfduo_](https://instagram.com/whattfduo_)
 
 ---
 
